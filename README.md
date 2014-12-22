@@ -35,11 +35,11 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A brefe and a playne declaratyon of the dewty of maried folkes gathered out of the holy scriptures, 
+
 #####Body#####
-A brefe and a playne declaratyon of the dewty of maried folkes gathered out of the holy scriptures, 
+FOr aſmuche as the deuyll is moſte redye to make ſtryfe where there ought to be moſt loue: and hath 
 #####Back#####
-A brefe and a playne declaratyon of the dewty of maried folkes gathered out of the holy scriptures, 
+❧ Imprynted at London in Temeſtrete by Hughe Syngelton, at the ſygne of the dobbel hood, ouer agaynſ
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
